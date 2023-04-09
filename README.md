@@ -1,2 +1,3 @@
-# Condi-Special-Version
-this is special version made by zxcr9999
+# Condi Special Version
+How to buy? 
+Go to https://condistore.mysellix.io/ or @zxcr9999 ( telegram )
